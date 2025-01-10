@@ -3,13 +3,39 @@ Therapiebot Fifi
 
 Hier sind einige Texte, die mir die Alpha-Version 1.0 generiert hat.
 
-Here are some tips to get out an abusive situation:  1. Get a good job  2. Ask for help  3. Stay in touch  4. Discuss your situation  5. Be present  6. Give full and accurate credit  7. Write down your feelings  8. Respond to any questions  9. Copy the comments below to write a note about your experience.  Ask the person to leave a comment. For more information, see our support page.
+Here are some tips to get out an abusive situation:  
+1. Get a good job
+2. 2. Ask for help
+3. Stay in touch
+4. Discuss your situation
+5. Be present
+6. Give full and accurate credit
+7. Write down your feelings
+8. Respond to any questions
+9. Copy the comments below to write a note about your experience.  Ask the person to leave a comment. For more information, see our support page.
 
 
 Here are some tips to get away from an abusive person:  “Don’t use the words 'shameful,' ”coddle others, …tolerate others”, or ‘use humor.“What are the things you can do to help?…What is the worst part of being a abusive parent?What does the situation have to do with your relationship with the abuser?Are there other options?Can you tell us a little bit about yourself and how you feel about this situation? How do you handle this and what steps can you take to make sure you stay safe? Read on to find out!If you are not a parent or caregiver, I suggest you check out the online abuse prevention resources list, which includes:More Than One Abuse Per Month:https://www.mentalhealthcenterkids.com/resources/More-than-One-Abusive-Parent-Help-Page#More than One-Alcohol Abuse/Drug Abuse: https://mentalhealthycenters.org/help/addictions/abusive_parent_help_page#How To Contact A Domestic Abuse Counselor‘If You Have Questions, Ask!‼More About Domestic Violence: http://hierarchyofabuse.wordpress.title: Domestic violence statistics and statistics resources, www.health.gov/mental-health/health-and-well-being/title/Domestic-violence-interactions/Read More About The Domestic   Abuse  Regulation:‡Read About Abuse Regulation, Read the U.S. Domestic and Sexual Abuse & Neglect Act, the Violence against Women Act and the Domestic Partner Abuse Prevention Act‖Read about abuse and neglect laws and resources:Read more about domestic violence:How do I know if I have been a victim of domestic abuse?How can I identify abuse by phone?Read our How To Call Guide to learn more.More Information For Domestic & Sexual Exploitation: How can domestic and sexual abuse victims identify victims and their rights?More information on domestic stalking:What can victims of abuse say about the abuse they experienced?
 
 Here are some tips to get out of a terrible situation: 
-1) Give yourself permission to tell your loved one to come back to you. This could be a friend or family member, or a teacher.  Be certain to say no, because it can be difficult to accept that someone else might be feeling down. Ask for help from someone you trust or have known for years.2) Ask your therapist or counselor to discuss your feelings with you in a private setting.3) Take a break from answering questions or letting your emotions cloud your judgment.4) Have a talk with someone who is a newbie to therapy.5) Discuss the situation with your friend and family.6) Listen to music or talk about a hobby or sport.7) Bring a book, journal, computer, tablet, phone, and computer.8) Write down the thoughts or feelings you have about the person.9) Fill out a form or write down a question or answer.10) Read a list of past and future questions.11) Use the online tool to track down and track your thoughts, feelings, behaviors, relationships, friendships, family, hobbies, etc.12) Copy and paste the list below into the notebook.13) Include a personal statement about your traumatic experience.14) Describe a time you felt bad about something.15) Explain why you thought you were in the wrong situation.16) Name a specific time in your life that you tried to stop.17) Tell your family or friends what you think about this traumatic event.18) Feel free to share your own thoughts and feelings in comments below.
+1) Give yourself permission to tell your loved one to come back to you. This could be a friend or family member, or a teacher.  Be certain to say no, because it can be difficult to accept that someone else might be feeling down. Ask for help from someone you trust or have known for years.
+2) Ask your therapist or counselor to discuss your feelings with you in a private setting.
+3) Take a break from answering questions or letting your emotions cloud your judgment.
+4) Have a talk with someone who is a newbie to therapy.
+5) Discuss the situation with your friend and family.
+6) Listen to music or talk about a hobby or sport.
+7) Bring a book, journal, computer, tablet, phone, and computer.
+8) Write down the thoughts or feelings you have about the person.
+9) Fill out a form or write down a question or answer.
+10) Read a list of past and future questions.
+11) Use the online tool to track down and track your thoughts, feelings, behaviors, relationships, friendships, family, hobbies, etc.
+12) Copy and paste the list below into the notebook.
+13) Include a personal statement about your traumatic experience.
+14) Describe a time you felt bad about something.
+15) Explain why you thought you were in the wrong situation.
+16) Name a specific time in your life that you tried to stop.
+17) Tell your family or friends what you think about this traumatic event.
+18) Feel free to share your own thoughts and feelings in comments below.
 
 Tips to Study for the University:
 
