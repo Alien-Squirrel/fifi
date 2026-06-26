@@ -4,7 +4,7 @@ Hier sind einige Texte, die mir die Alpha-Version 1.0 generiert hat.
 
 Here are some tips to get out an abusive situation:  
 1. Get a good job
-2. 2. Ask for help
+2.  Ask for help
 3. Stay in touch
 4. Discuss your situation
 5. Be present
