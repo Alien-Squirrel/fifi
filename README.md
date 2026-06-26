@@ -1,5 +1,4 @@
-# fifi
-Therapiebot Fifi
+Therapiebot
 
 Hier sind einige Texte, die mir die Alpha-Version 1.0 generiert hat.
 
